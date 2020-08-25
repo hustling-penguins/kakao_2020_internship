@@ -1,0 +1,1 @@
+# kakao_2020_internship
